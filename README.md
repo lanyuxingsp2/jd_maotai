@@ -7,3 +7,10 @@
 使用过程中，如遇到问题，请关注公众号，后台留言 “京东茅台” 即可！
 
 ![image](https://user-images.githubusercontent.com/40600240/118392266-53494a00-b66b-11eb-86e0-2adbd91ae79c.png)
+
+
+**抢购记录：**
+
+![image](https://user-images.githubusercontent.com/40600240/158737831-364bcb19-b4aa-407a-8f2b-bf7dd1230fa1.png)
+
+![image](https://user-images.githubusercontent.com/40600240/158737850-b6b1f71a-fcde-4fd5-8df6-457510f721c6.png)
