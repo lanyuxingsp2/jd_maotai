@@ -11,6 +11,7 @@
 
 **抢购记录：**
 
-![image](https://user-images.githubusercontent.com/40600240/158737831-364bcb19-b4aa-407a-8f2b-bf7dd1230fa1.png)
+![image](https://user-images.githubusercontent.com/40600240/158738028-d628e18c-d33b-4886-bcdb-f6d8b7da9afd.png)
+
 
 ![image](https://user-images.githubusercontent.com/40600240/158737850-b6b1f71a-fcde-4fd5-8df6-457510f721c6.png)
