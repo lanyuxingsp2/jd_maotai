@@ -1,3 +1,5 @@
+**后续不定时更新！！！**
+
 本软件仅用于娱乐，禁止用于任何违法的事。
 
 京东 茅台 抢购 软件
@@ -20,3 +22,7 @@
 ![_SV5%)MBB5{7~SGQ%$L 4~B](https://user-images.githubusercontent.com/40600240/159207560-cb57fcdf-897c-4324-8876-c6c9bf23302c.png)
 
 ![0ZI5 C YGXDC5FYG{ORUYNP](https://user-images.githubusercontent.com/40600240/159207579-b584a326-d056-4560-ba20-e84477680832.png)
+
+![)KMJIELKPX BK4~0`7T}GA6](https://user-images.githubusercontent.com/40600240/160285440-6210a359-197d-4311-b2f0-e7bd326f7de1.jpg)
+
+![Uploading A_MS{C$JW0RUPU5ZTZ7`{DT.jpg…]()
