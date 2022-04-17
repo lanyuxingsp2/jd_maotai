@@ -1,4 +1,3 @@
-**后续不定时更新！！！**
 
 本软件仅用于娱乐，禁止用于任何违法的事。
 
@@ -25,4 +24,3 @@
 
 ![)KMJIELKPX BK4~0`7T}GA6](https://user-images.githubusercontent.com/40600240/160285440-6210a359-197d-4311-b2f0-e7bd326f7de1.jpg)
 
-![Uploading A_MS{C$JW0RUPU5ZTZ7`{DT.jpg…]()
