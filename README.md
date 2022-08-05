@@ -13,6 +13,9 @@
 
 **抢购记录：**
 
+![RMH6W{$XYQJYU0IP~JF{(9Y](https://user-images.githubusercontent.com/40600240/183009430-e8c51c1a-f14a-4852-b9a7-7027e1e22e61.png)
+
+
 ![image](https://user-images.githubusercontent.com/40600240/158738028-d628e18c-d33b-4886-bcdb-f6d8b7da9afd.png)
 
 ![image](https://user-images.githubusercontent.com/40600240/158738214-318bcb70-1a19-43f9-916c-349022726065.png)
