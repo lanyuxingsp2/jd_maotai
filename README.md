@@ -13,6 +13,12 @@
 
 
 **抢购记录：**
+![QQ图片20221106122704](https://user-images.githubusercontent.com/40600240/200154374-6a8619e3-b92f-44f1-8929-a6f4a3208164.jpg)
+![QQ图片20221106122709](https://user-images.githubusercontent.com/40600240/200154377-c940e695-4a36-4572-baa8-6475a7034e03.jpg)
+![QQ图片20221106122714](https://user-images.githubusercontent.com/40600240/200154380-3e7d46ea-919e-4217-b2e3-9e848f24b068.jpg)
+
+
+
 ![PUM%(1`25N$KNX02GR9K}KD](https://user-images.githubusercontent.com/40600240/187371724-80257a3f-cbf7-4c1d-8224-c9c356632018.jpg)
 ![C(1`Q1QEY5L7~RPM{8LE8W1](https://user-images.githubusercontent.com/40600240/187371742-20445656-684a-4fef-b01c-4407f7810392.png)
 ![8Z2X2A PJ{JT9~50N~IY)I6](https://user-images.githubusercontent.com/40600240/187371763-a70f9874-cdb3-4fd9-bece-68fb472b0935.jpg)
