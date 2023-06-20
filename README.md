@@ -13,6 +13,8 @@
 
 
 **抢购记录：**
+![2](https://github.com/tiankong1999/jd_maotai/assets/40600240/5aeaa90b-b8f4-4936-94f0-7c95db8efd3e)
+![1](https://github.com/tiankong1999/jd_maotai/assets/40600240/3fb0781a-f235-4929-8360-6250ad57fc0b)
 ![1](https://github.com/tiankong1999/jd_maotai/assets/40600240/9e67d74b-7cb6-47e1-b0f3-22bbcee6fe9f)
 ![8](https://github.com/tiankong1999/jd_maotai/assets/40600240/6434cb93-8e53-4adb-a471-1980cf9538b6)
 ![2](https://github.com/tiankong1999/jd_maotai/assets/40600240/a338ac15-4c51-4b87-b15f-bfe5c437a95f)
