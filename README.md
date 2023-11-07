@@ -13,6 +13,13 @@
 
 
 **抢购记录：**
+![QQ图片20231107141445](https://github.com/tiankong1999/jd_maotai/assets/40600240/af0f212e-0b1d-448c-905d-ba16eacc17a5)
+![QQ图片20231107141454](https://github.com/tiankong1999/jd_maotai/assets/40600240/3529d3b2-1159-44e2-8362-508434779c00)
+
+
+
+
+**之前记录：**
 ![2](https://github.com/tiankong1999/jd_maotai/assets/40600240/5aeaa90b-b8f4-4936-94f0-7c95db8efd3e)
 ![1](https://github.com/tiankong1999/jd_maotai/assets/40600240/3fb0781a-f235-4929-8360-6250ad57fc0b)
 ![1](https://github.com/tiankong1999/jd_maotai/assets/40600240/9e67d74b-7cb6-47e1-b0f3-22bbcee6fe9f)
